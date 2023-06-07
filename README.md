@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dragonz0
+- Living in South Korea
+- 고려대학교 재학 중
+- College, doing assignments
+-Hellp me :(
